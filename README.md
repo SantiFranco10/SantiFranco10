@@ -1,6 +1,6 @@
 # SANTIAGO FRANCO 
 
-tester apasionado por nuevos retos y trabajo en equipo. 	:grinning:
+tester apasionado por nuevos retos y trabajo en equipo. :grinning:
 
 
 
